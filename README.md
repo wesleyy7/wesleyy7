@@ -8,6 +8,6 @@ Meu atleta favorito é o [Cristiano Ronaldo](https://pt.wikipedia.org/wiki/Crist
 
 
 
-![](https://media.tenor.com/83b74HjM1W0AAAAC/ava%C3%AD-pedro-guilherme.gif)
+![](https://media.tenor.com/MRM58hVWgn4AAAAC/cristiano-cristiano-ronaldo.gif)
 
 
